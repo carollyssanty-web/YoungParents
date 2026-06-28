@@ -16,13 +16,11 @@ Anos depois, quando Kyōko entra na escola, a idade dos pais passa a ser alvo de
 
 ## Estrutura
 
-📚 Lore
+📓 Lore
 
 🧠 Brainstorm
 
-📓 Dev Log
-
-🛣️ Roadmap
+🌑 Dev Log
 
 🖼️ Illustrations
 
