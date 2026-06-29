@@ -18,7 +18,7 @@ Anos depois, quando Kyōko entra na escola, a idade dos pais passa a ser alvo de
 
 ⋆˚࿔📓 Lore 𝜗𝜚˚⋆
 
-🧠 Brainstorm
+⋆˚࿔🧠 Brainstorm 𝜗𝜚˚⋆
 
 🌑 Dev Log
 
